@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xehpnetta
 - I am a video game composition student
-- 🌱 I’m currently in my junior year of college
+- 🌱 I just graduated with a bahcelor's in music composition
 - 📫 Email: mollykay.wenzel@gmail.com | Discord: @xehpnetta
 - ⚡ Cat person :P
 
